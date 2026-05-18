@@ -1,4 +1,4 @@
-# 
+# elite bot de trading de Deribit complementos es el mejor bot de trading de Deribit complementos con monitoreo de precios y trading de perpetuos. Seguro, confiable y optimizado
 
 
 
